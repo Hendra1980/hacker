@@ -1,0 +1,2 @@
+# hacker
+Ngk paham
